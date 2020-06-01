@@ -4,8 +4,8 @@ _**Eurydice**_ <br>
 I am a woman <br>
 brought limping to Hell <br> 
 
-under the Night <br>  
-and Fog decree. <br>
+under the Night<br>  
+and Fog decree.<br>
 
 But they’ve let him come <br>
 here to Belsen, rare passenger <br>
