@@ -1,24 +1,23 @@
-_**Eurydice**_
+_**Eurydice**_ <br>
 *-by Agha Shahid Ali*
-
+<br>
 I am a woman <br>
 brought limping to Hell <br> 
-<br>  
 
-under the Night  
-and Fog decree.
+under the Night <br>  
+and Fog decree. <br>
 
-But they’ve let him come
-here to Belsen, rare passenger
+But they’ve let him come <br>
+here to Belsen, rare passenger <br>
 
-in a river-green van,
-ferried in by an old chauffeur
+in a river-green van, <br>
+ferried in by an old chauffeur <br>
 
-who drives past
-the howl-choked dogs
+who drives past <br>
+the howl-choked dogs <br>
 
-at the fence. At a shudder
-of coals, trains unload
+at the fence. At a shudder <br>
+of coals, trains unload <br>
 
 wide-eyed children,
 who now flock around him.
