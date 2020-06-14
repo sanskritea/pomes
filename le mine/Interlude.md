@@ -1,21 +1,21 @@
 After what seems like an eternity, they break apart, gasping for air-
+<br>
+*A momentary calm for the storm to abate<br>
+A tiny space of seconds in which to breathe,<br>
+rest their racing hearts, as desire retreats.*<br>
 
-A momentary calm for the storm to abate
-A tiny space of seconds in which to breathe,
-rest their racing hearts, as desire retreats.
+*Smell the scent slowly steaming off the neck,<br>
+Let grasping hands drift, seek silent moans<br>
+disguised as sighs, soft hums, low groans.*<br>
 
-Smell the scent slowly steaming off the neck,
-Let grasping hands drift, seek silent moans
-disguised as sighs, soft hums, low groans.
+*It is but a pause, before business resumes.<br>
+Let the lips taste wind and eyes see gold:<br>
+the ascending crescendo waiting to unfold.*<br>
 
-It is but a pause, before business resumes.
-Let the lips taste wind and eyes see gold:
-the ascending crescendo waiting to unfold.
-
-Steady shivering knees, find new footing,
-Look around again, ensure coast stays clear
-Ask assent, brace self, once more draw near:
-
+*Steady shivering knees, find new footing,<br>
+Look around again, ensure coast stays clear<br>
+Ask assent, brace self, once more draw near:*<br>
+<br>
 - a minute later, and they are (lips, tongues, arms) entwined again.
 
 
