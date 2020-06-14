@@ -1,4 +1,4 @@
-After what seems like an eternity, they break apart, gasping for air-
+After what seems like an eternity, they break apart, gasping for air-<br>
 <br>
 *A momentary calm for the storm to abate<br>
 A tiny space of seconds in which to breathe,<br>
@@ -16,7 +16,7 @@ the ascending crescendo waiting to unfold.*<br>
 Look around again, ensure coast stays clear<br>
 Ask assent, brace self, once more draw near:*<br>
 <br>
-- a minute later, and they are (lips, tongues, arms) entwined again.
+-a minute later, and they are (lips, tongues, arms) entwined again.
 
 
 
