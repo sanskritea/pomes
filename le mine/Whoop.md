@@ -30,6 +30,7 @@ The parsecs go by, Time is delayed,<br>
 Their merger approaches, they wait <br>
 With bated breath, to seal their fate.<br>
 <br>
+<br>
 *Though densely cold, this twin binary burning*<br>
 *Are equals in form, and will unite in the abyss;*<br>
 *While the Sun watches his lady wane and wax* <br>
