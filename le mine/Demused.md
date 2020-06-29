@@ -1,20 +1,20 @@
-My Muse is locked inside his room:
-seeing not sun nor midnight moon
+My Muse is locked inside his room:<br>
+seeing not sun nor midnight moon<br>
 
-My Muse is moody and apt to brood:
-responds not to babe, or bro or dude
+My Muse is moody and apt to brood:<br>
+responds not to babe, or bro or dude<br>
 
-My Muse is eating less than enough:
-skipping meals, saying cooking’s tough 
+My Muse is eating less than enough:<br>
+skipping meals, saying cooking’s tough <br>
 
-My Muse is heavy-eyed yet sleepless:
-stargazing with immoderate success
+My Muse is heavy-eyed yet sleepless:<br>
+stargazing with immoderate success<br>
 
-My Muse is far away and lonesome:
-has spent months waiting to return
+My Muse is far away and lonesome:<br>
+has spent months waiting to return<br>
 
-My Muse is silent most of the time:
-how on Earth am I going to write?
+My Muse is silent most of the time:<br>
+how on Earth am I going to write?<br>
 
 
 
